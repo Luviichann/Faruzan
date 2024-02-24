@@ -1,1 +1,2 @@
-![Faruzan](https://pic.imgdb.cn/item/65d960299f345e8d03b3c417.jpg)
+A project created for Faruzan.
+It doesn't have any other special significance.
