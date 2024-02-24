@@ -1,1 +1,1 @@
-![Faruzan](./static/image/faruzan.jpg)
+![Faruzan](https://pic.imgdb.cn/item/65ca06679f345e8d0385fb4d.jpg)
