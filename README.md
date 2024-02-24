@@ -1,0 +1,1 @@
+![Faruzan](./static/image/faruzan.jpg)
