@@ -1,1 +1,1 @@
-![Faruzan](https://pic.imgdb.cn/item/65ca06679f345e8d0385fb4d.jpg)
+![Faruzan](https://pic.imgdb.cn/item/65d960299f345e8d03b3c417.jpg)
